@@ -2,5 +2,5 @@
  
  Would you be a good public citizen and wait for the pedestrian light or you would be that person living on the edge and jay-walk?
 
-[Live on the edge and jaw-walk](jaw-walking.md)
+[Live on the edge and jay-walk](jay-walking.md)  
 [Be a good public citizen and wait for the pedestrian light](good-citizen.md)
