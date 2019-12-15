@@ -4,7 +4,7 @@
   
 "How are you already hitting on me? Creep!"  
   
-She Stands up, and then leave you.  
+She stands up, slaps you, and then leave you.  
   
 You leave the library and walk home depressed.
 
