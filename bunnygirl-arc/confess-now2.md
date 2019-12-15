@@ -6,7 +6,7 @@ Gasping for air, you take a deep breath and yelled, "I am in love with you, Rina
   
 "I love you!" "I love you, Rina" "I love you very much!"  
   
-People in school starts to look outside the window to look at you. The name "Rina" sounds very familiar to they. They gave more thought of where they have heard that name. Suddenly, everyone realize Rena is the name of a young famous actoress that has been in one of the recent popular movie.  
+People in school starts to look outside the window to look at you. The name "Rina" sounds very familiar to them. They gave more thoughts of where they have heard that name. Suddenly, everyone remembers Rena, who is the name of a young famous actoress that has been in one of the recent popular movie.  
   
 You continue shouting about the moment you've spent with her and how you chereish them.  
   
