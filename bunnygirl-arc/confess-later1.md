@@ -8,5 +8,5 @@ One morning, you notice your memories of her starts to fade.
   
 What do you do?  
   
-[Confess your love now!](confess-now2.md)
+[Confess your love now!](confess-now2.md)   
 [Confess your love later...](confess-later2.md)
