@@ -1,0 +1,1 @@
+You both talked more and discover that she is apparently a famous actross and had been popular. Wished to be forgotten by the world due to an unformatunate accident.
