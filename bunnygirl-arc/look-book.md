@@ -3,4 +3,4 @@ While you are looking for book book, you encounter a bunny girl walking around a
 What do you do?  
   
 [Approach her](approach-her.md)  
-[Leave her alone and read your book](open-book.md)
+[Leave her alone and read your book](../start/open-book.md)
