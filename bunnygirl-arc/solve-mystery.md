@@ -4,5 +4,5 @@ But at the same time, your heart had skipped a beat and apparently catched feeli
 
 What do you do?
 
-[Confess to her now!](confess-now1.md)
+[Confess to her now!](confess-now1.md)  
 [Confess to her later](confess-later1.md)

@@ -19,5 +19,5 @@ You ask her if she want to be your girlfriend, and she nodded with embarrassment
 **Congrats, you got a girlfriend!**
   
 ---
-* [Start Over](../start/start.md)
+* [Start Over](../start/start.md)  
 * [Go to README](../README.md)
