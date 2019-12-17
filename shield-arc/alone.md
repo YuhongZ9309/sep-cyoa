@@ -1,1 +1,0 @@
-Unfortunately, all the adventures went to the other teams leaving you with no one to pair up with. You asked them why doesn’t anyone want to team up with me, but they all responded they want to go to the people who they want to in their own accordance. Then you saw a beautiful lady who said she wants to volunteer to join your team.
