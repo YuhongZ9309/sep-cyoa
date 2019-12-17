@@ -8,5 +8,7 @@ A few moments later, you both are engaged in an interesting conversation. As you
   
 What do you do?
 
+![image](../bunnygirl-pics/Bunny1.gif)
+
 [Help her to solve this mystery](solve-mystery.md)  
 [Leave her alone and read your book](../shield-arc/open-book.md)  

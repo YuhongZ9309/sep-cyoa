@@ -11,6 +11,8 @@ People in school starts to look outside the window to look at you. The name "Rin
 You continue shouting about the moment you've spent with her and how you chereish them.  
   
 Out of the blue, you hear you name being called. You turn around and surprised to see her standing right in front of you. She runs towards you and slaps you, but then she *HUGS* you. You notice that she is blushing.    
+
+![image](../bunnygirl-pics/Bunny2.gif)
    
 She quitely wispered, "Idiot, I love you too"      
   
