@@ -1,1 +1,0 @@
-The King, Aultcray Melromarc, explained the situation and why are you summoned here for. He told you that you should rest of the night and should continue your adventure tomorrow. In the morning, you gather in the royal hall and the king explained that you would need a team to help you. 

@@ -1,1 +1,0 @@
-You decide to not trust anyone anymore and went to a slave shop to purchase a slave that you’ll be able to tame that is obedient. Now starting you adventure is going to be a rough one but you have a slave that can never disobey what you said.
