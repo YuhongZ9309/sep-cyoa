@@ -10,6 +10,6 @@ The other 3 heroes finished introducing themselves and you were about to introdu
 
 What do you do?
 
-[Keep quiet and let the King continue his speech](keep-queit.md)  
-[Formally tell the King that he had skipped you](formaly-tell.md)  
+[Keep quiet and let the King continue his speech](keep-quiet.md)  
+[Formally tell the King that he had skipped you](formally-tell.md)  
 [Insult the King](insult-king.md)  
