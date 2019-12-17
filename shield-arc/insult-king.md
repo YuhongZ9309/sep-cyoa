@@ -1,4 +1,4 @@
-## End
+## END
 
 “Yo King, aren’t you skipping someone?” 
 “I’m of one the four cardinal heroes that you’ve just summoned and how dare you already disrespect someone that is going to save your country. You’re a trash king that doesn’t know how to respect people and govern a country. You are probably adopted into the royal family by a queen. What a joke! **Adopted royalty**.”  
