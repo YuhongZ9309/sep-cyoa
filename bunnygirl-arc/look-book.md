@@ -2,7 +2,7 @@ While you are looking for more books, you encounter a bunny girl walking around 
   
 What do you do?  
 
-![image](../bunnygirl-pics/Bunny3.gif)
+![image](../bunnygirl-pics/Bunny1.gif)
   
 [Approach her](approach-her.md)  
 [Leave her alone and read your book](../shield-arc/open-book.md)  
