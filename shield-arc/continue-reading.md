@@ -6,7 +6,7 @@ You looked up and see a group of priests who have begged me to save their world.
   
 “Greetings, the four cardinal heroes of ancient legend. This is the land of Melromarc and I am her king, Aultcray Melromarc XXXII. Now heroes, please identify yourself...”  
   
-The other 3 heroes finished introducing themselves and you were about to introduce yourself too. But suddenly, the King interrupts you and starts to explain the situation and the reason why we are all summoned.  
+Once the other 3 heroes finish introducing themselves, you were about to introduce yourself too. But suddenly, the King interrupts you and starts to explain the situation and the reason why we are all summoned.  
 
 What do you do?
 
